@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @harrree
 - 👀 I’m interested in (the world of data)
 - 🌱 I’m currently learning about it
-- 💞️ I’m looking to collaborate on auspicious techies
+- 💞️ I’m looking to collaborate on everything on data
 - 📫 How to reach me @harrree_(instagram)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
